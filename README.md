@@ -1,0 +1,1 @@
+# resenhaArtigo_Thoughtworks
